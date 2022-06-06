@@ -8,6 +8,7 @@
 - __Email:__ kroshka0001@gmail.com
 - __GitHub:__ @kroshka0001
 - __Discord:__ @Yuliya Laptsinskaya#2489
+- __LinkedIn:__ https://www.linkedin.com/in/yuliya-laptsinskaya-68b157b0/
 
 ## __About Me__
 
